@@ -1,1 +1,1 @@
-# 2026peverano
+# 2026 Probabilidad y estadistica curso de verano 
